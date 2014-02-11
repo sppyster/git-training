@@ -3,6 +3,5 @@
 
 Selected poems from this list:
 balalfaklj
-afkljasdklfj
 asfjsdj
 asdfkljj
