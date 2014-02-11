@@ -2,7 +2,3 @@
 ## train me
 
 Selected poems from this list:
-balalfaklj
-asdfkljj
-
-won't finish
